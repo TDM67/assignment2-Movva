@@ -6,7 +6,7 @@ I have been playing this sport **since my childhood**. It is very easy to play t
 ### Team
 Zimbabwe
 1. Sikander Raza
-2. Sean Williams
+2. Hamilton Masakadza
 3. Brandon Taylor
 - Ireland
 - Scotland
