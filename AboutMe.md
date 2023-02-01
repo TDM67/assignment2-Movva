@@ -17,6 +17,6 @@ I have been to several countries, mainly to spend the excess money
 
 # Phity Quotes
 
-> Truth hurts. Maybe not as much as jumping on a bicycle with a seat missing, but it hurts. -_Rahul
+> Truth hurts. Maybe not as much as jumping on a bicycle with a seat missing, but it hurts. -_Rahul_
 > 
-> As you get older, three things happen. The first is your memory goes, and I can’t remember the other two. —_Sir Norman Wisdom.
+> As you get older, three things happen. The first is your memory goes, and I can’t remember the other two. —_Sir Norman Wisdom_
