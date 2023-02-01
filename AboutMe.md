@@ -14,3 +14,9 @@ I have been to several countries, mainly to spend the excess money
 |  Australia    |  To see Kangaroos     |         1            |
 |  USA          |  To visit Rahul       |        10            |
 |  Russia       |  To meet Putin        |         1            |
+
+# Phity Quotes
+
+> Truth hurts. Maybe not as much as jumping on a bicycle with a seat missing, but it hurts.
+> 
+> As you get older, three things happen. The first is your memory goes, and I can’t remember the other two — Sir Norman Wisdom.
